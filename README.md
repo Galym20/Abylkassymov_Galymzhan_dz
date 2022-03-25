@@ -1,0 +1,1 @@
+# Abylkassymov_Galymzhan_dz
